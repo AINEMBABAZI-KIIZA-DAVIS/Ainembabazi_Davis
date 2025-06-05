@@ -5,3 +5,4 @@
 # 2200722713
 
 St. Teddy Drugshop
+Located in Ntungamo District
